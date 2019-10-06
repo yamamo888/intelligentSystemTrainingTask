@@ -1,1 +1,1 @@
-# intelligentSystemTrainingTask
+# 歴代B3の成果物 in 八谷研究室
